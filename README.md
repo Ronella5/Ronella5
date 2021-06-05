@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Ronella.
 - 👀 I’m interested in coding..
-- 🌱 I’m currently learning many things..
+- 🌱 I’m currently reading about vanets..
 - 💞️ I’m looking to collaborate on some interesting ideas...
 - 📫 How to reach me @ronellapereira(insta)
 
